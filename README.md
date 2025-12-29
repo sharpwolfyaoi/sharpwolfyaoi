@@ -1,6 +1,8 @@
 ![Image](https://github.com/user-attachments/assets/8ce2bcb5-b931-4f62-9a60-2555854320fc)
 
 hi me and my awesome friend @sharpwolfyuri love sharpwolf heh
+antinous is a LOSER and we should all throw rocks at him!!!!!!
+
 
 <!--
 **sharpwolfyaoi/sharpwolfyaoi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
