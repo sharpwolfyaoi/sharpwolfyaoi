@@ -1,4 +1,6 @@
-## Hi there 👋
+![Image](https://github.com/user-attachments/assets/ee11b7de-6e70-4746-b706-eae29f211341)
+
+hi me and my awesome friend @sharpwolfyuri love sharpwolf heh
 
 <!--
 **sharpwolfyaoi/sharpwolfyaoi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
