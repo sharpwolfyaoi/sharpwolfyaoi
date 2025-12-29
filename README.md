@@ -2,7 +2,7 @@
 
 hi me and my awesome friend @sharpwolfyuri love sharpwolf heh
 
-antinous is a LOSER and we should all throw rocks at him!!!!!!
+nikko is a LOSER and we should all throw rocks at him!!!!!!
 
 
 <!--
