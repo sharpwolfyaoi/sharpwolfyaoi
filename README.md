@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/ee11b7de-6e70-4746-b706-eae29f211341)
+![Image](https://github.com/user-attachments/assets/8ce2bcb5-b931-4f62-9a60-2555854320fc)
 
 hi me and my awesome friend @sharpwolfyuri love sharpwolf heh
 
